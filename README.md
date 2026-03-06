@@ -1,1 +1,0 @@
-# tikshop-privacidade1
